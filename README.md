@@ -14,4 +14,4 @@ dahyun
 chickie
 
 
-John Paulo Dela Umbria
+JP Dela Umbria
