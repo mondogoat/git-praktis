@@ -7,23 +7,6 @@ Add your name below:
 
 carlo candoy
 
-dahyun
-
-nayeon
-
-jeongyeon
-
-chaeyoung
-
-sana
-
-mina
-
-momo
-
-tzuyu
-
-jihyo
 
 chickie
 
